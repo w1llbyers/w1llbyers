@@ -1,11 +1,22 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=w1llbyers&label=Profile%20views&color=0e75b6&style=flat" alt="w1llbyers" /> </p>
+  
+  <img src="https://komarev.com/ghpvc/?username=w1llbyers&style=flat-square" alt="views"/> 
+  <p align="center">
+  <a href="onewhxeatmark.straw.page">
+    <b>?strawpagei think</b></a>  
+💥   <a  href=en.pronouns.page@willonewheatster "><b>prnspage btw..</b></a>
+</p>
 
-THIS IS A WIP FIGHT ME 
+---
 
-#
+<p align="center">
+  <b>WILL-MIKE</b> 🎨 <br> 4TEEN
+  
+</p>
 
-###
+---
 
-<br clear="both">
+<p align="center">
+   BPD - AUTISM - SUSPECTED BIPOLAR DISORDER
+</p>
 
-![one-wheat-mark-truckstoptiger](https://github.com/user-attachments/assets/d959656e-71de-42d0-b9c2-75b5cb314846)
+---
