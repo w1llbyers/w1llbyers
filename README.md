@@ -5,7 +5,7 @@
 ---
 
 <p align="center">
-  <b>WILL-MIKE</b>🎨<br> 4TEEN
+  <b>WILL</b>🎨<br> 4TEEN
 
 
 </p>
